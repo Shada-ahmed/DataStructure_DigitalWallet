@@ -1,4 +1,4 @@
-#Puch_Cash
+
 💡 Tired of saying “I'll pay you back” and then conveniently forgetting?
 No more excuses — Push Cash is here to keep your transactions (and your friendships) in check 😄💸
 
